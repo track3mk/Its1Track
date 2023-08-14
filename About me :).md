@@ -1,0 +1,5 @@
+-  Hi, I’m Track :)
+-  I’m interested in Games especially Minecraft, Indie games, Basketball and programming
+-  I’m currently learning Python and I am still a student :)
+-  You can always find me in Discord: track3mk
+-  
